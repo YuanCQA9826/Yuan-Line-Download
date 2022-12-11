@@ -3,6 +3,6 @@
 <br>Dancing Line将以全新的姿态恢复运营并与大家再次见面！
 <br>Yuan Line团队代表所有DL爱好者对此表示热烈祝贺！
 <br>🎈🎈🎈✨✨✨🎉🎉🎉✨✨✨🎈🎈🎈
-<br>Very good news on Dancing Line's 6th anniversary special on 2022.12.11 that
+<br>Very good news on Dancing Line's 6th anniversary special on 2022.12.11 was sent that
 <br>Dancing Line will back up and running again with a new face!
 <br>On behalf of all DL fans, the Yuan Line team would like to extend warm congratulations!
